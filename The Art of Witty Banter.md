@@ -83,6 +83,10 @@ What's your favotie band?
 What's your favorite movie? -> What are your top few movies? / What are some good movies you've seen recently? / Any comedy movies you consider pretty decent and can recommend?  
 
 
+# 随便聊聊
+不管是中文还是英文闲聊本质都是一样的，如何让对方有倾诉欲，和你聊得来。  
+我欠缺的其实是2方面，1是get不到对方的全部信息，无法判断出哪一块他更想分享更多或者有更多故事，有想问的却不能脱口而出，当心里默默酝酿的时候就错过机会了。-- **好办，练口语听力，找人聊天**
+2是没有基本的文化背景，很难让别人感觉和你聊的来。就像和中国人聊天，吃的东西都相似可以交流，看的影视娱乐作品可以交流，关注的明星八卦可以交流，脱口而出的苟利国家生死以的文化积淀。-- **难办**
 
 
 # TODO: Mock small talks / Improve happened ones
