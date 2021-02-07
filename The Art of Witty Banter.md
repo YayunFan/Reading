@@ -83,10 +83,40 @@ What's your favotie band?
 What's your favorite movie? -> What are your top few movies? / What are some good movies you've seen recently? / Any comedy movies you consider pretty decent and can recommend?  
 
 
+## Chapter 3. Think before you react
+#### 1.Interesting Verbs
+It tells them you understand them - that you can walk a mile in their shoes.  
+**Throw on** a thoughtful face, **rest** your hand on your chin, and people will never **question** your engagenment again.  
+The more we try to get out of the rut of the conversation, the more stuck we feel. 
+
+
+  
+#### 2.Emotion (Correct emotion, not overreact, not react too quickly - fake and bored)
+* **Correct emotion**: Take a step back and ask yourself, What is the primary emotion being shared here? and then give that back to them    
+The vast majority of emotions people share and want reciprocal, congruent reactions to are: joy, annoyance, anger, sadness, humor.  
+Looking for sympathy  - Wow, that really sucks.  
+Both laugh and sympathy - Wow, that's hilarious, but it sucks too.  
+* Don't overreact. Don't  react too quickly - looks like you are fake and bored  
+
+## Chapter 4. Practice Free Association
+#### 1.Interesting Verbs
+It becomes difficult, like trying to climb out of a hole.  
+Allow your mind to **go blank and zero** in on the word "cats".  
+  
+#### 2.Association
+
+
+
 # 随便聊聊
+Chapter 1 & 2
 不管是中文还是英文闲聊本质都是一样的，如何让对方有倾诉欲，和你聊得来。  
-我欠缺的其实是2方面，1是get不到对方的全部信息，无法判断出哪一块他更想分享更多或者有更多故事，有想问的却不能脱口而出，当心里默默酝酿的时候就错过机会了。-- **好办，练口语听力，找人聊天**
-2是没有基本的文化背景，很难让别人感觉和你聊的来。就像和中国人聊天，吃的东西都相似可以交流，看的影视娱乐作品可以交流，关注的明星八卦可以交流，脱口而出的苟利国家生死以的文化积淀。-- **难办**
+我欠缺的其实是2方面，1是get不到对方的全部信息，无法判断出哪一块他更想分享更多或者有更多故事，有想问的却不能脱口而出，当心里默默酝酿的时候就错过机会了。-- **好办，练口语听力，找人聊天**  
+2是没有基本的文化背景，很难让别人感觉和你聊的来。就像和中国人聊天，吃的东西都相似可以交流，看的影视娱乐作品可以交流，关注的明星八卦可以交流，脱口而出的苟利国家生死以的文化积淀。-- **难办**  
+
+Chapter 3 & 4
+和朋友聊天时emotion对我们来说毫无障碍。但是和外国人聊天，还是老问题，听力导致了我们的trigger words反应，应该尽量避免，使自己的反应更接近中文对话时。 -- **练口语听力 again**  
+看到association时其实我想到的是2个问题，1是我有一个很不好的习惯，就是习惯assume对方要讲的或者要问的是这个，这就会导致有时候我会错了意。 -- 慢慢改正吧make my mind to **go blank and zero**.  2是association其实我们都是没有问题的，问题的核心还是因为词汇和即时造句能力，我们无法用英语在稍微专业的其他领域交流。比如和同事聊到他周末要去biking,如果我有这方面的了解的话，完全可以就biking设备，biking比赛，biking经历等展开一系列的聊天，但是我并没有，于是conversation got stuck.而这个问题不仅是英语沟通，中文沟通也存在，比如上次父母问我网线五代线六代线的问题，我就答不上来，而我及时谷歌了学习了下做解答。（当然当时最好的做法其实是association转移话题）  
 
 
 # TODO: Mock small talks / Improve happened ones
+# TODO: Cumulative Topic Knowledge and Practice
