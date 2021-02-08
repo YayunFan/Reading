@@ -105,6 +105,23 @@ Allow your mind to **go blank and zero** in on the word "cats".
   
 #### 2.Association
 
+## Chapter 5. Break the Fourth Wall
+**Break the fourth wall  of the conversation by commenting on the conversation itself in an observational or analytical way (Non-negative, should be positive and/ or entertainning).**  
+Did you say what I think you just said? Yes? Okay, then we can both ignore it and move on.  
+You really said that, didn't you? Can't secape that one!  
+This conversation has really escalated, hasn’t it?  
+Frankly, I have no idea where this conversation is headed, but I like it.  
+
+
+## Chapter 6. The "US Against the World" Technique
+Make people feel that you are like them
+Yeah, I saw that Michael Jackson lookalike too. Can you believe it?  
+Glad I'm not the only one here who...  
+Yeah, it's exhausting in there, isn't it?  
+
+
+
+
 
 
 # 随便聊聊
