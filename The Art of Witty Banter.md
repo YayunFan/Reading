@@ -119,9 +119,27 @@ Yeah, I saw that Michael Jackson lookalike too. Can you believe it?
 Glad I'm not the only one here who...  
 Yeah, it's exhausting in there, isn't it?  
 
+## Chapter 7. Create a Concersation Resume
+Haha, great minds think alike. The author suggests us to prepare conversation resume.  
+
+## Chapter 8. Set Boundaries on the Conversation
+#### 1. words
+build **rapport** with people (rapport vs relationship)  
+sound plausible and casual (plausible vs reasonable)  
+#### 2. common ways to establish boundaries on a conversation
+Hey, I'm looking for my friends, but real quick...  
+Sorry to interrupt just for a second before I get back to this, but...  
+I'm just about to head to yoga, but...  
+I'm late for an appointment, but...  
+I can't believe it's almost 5PM, but...  
 
 
-
+## Chapter 9. Derail Your Train of Thought
+**The good conversationalist asks plenty of questions and stays engaged on the topic even though it is not their topic of choice or even interest at that moment.**  
+#### 1. words
+**kick** your ego to the curb  
+**park** their egos and let the other people's trains run  
+It just amounts to **putting** the burning thoughts in you brain **aside** for the time being.  
 
 
 # 随便聊聊
