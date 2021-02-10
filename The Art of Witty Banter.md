@@ -139,7 +139,35 @@ I can't believe it's almost 5PM, but...
 #### 1. words
 **kick** your ego to the curb  
 **park** their egos and let the other people's trains run  
-It just amounts to **putting** the burning thoughts in you brain **aside** for the time being.  
+It just amounts to **putting** the burning thoughts in you brain **aside** for the time being. 
+
+## Chapter 10. Use Fallback Stories
+#### 1. Words
+1. Enage people, **invigorate** a conversation, or get a rise and laugh out of people that feel a bit too **stiff** at the moment.  
+2. Imagine that a conversation is dying down, or there is a **lull** between topics. 
+3. The story just introduces one or two main **premises** and I don’t go into the nitty-gritty detail because that’s not what drives a conversation forward.  
+4. **distill** that into one sentence  
+5. If you can't, your stories are probably **rambling** messes that make people **scream internally**.  
+6. The other person will feel safer after you’ve disclosed your position first – that’s just a **facet** of human psychology.  
+7. carry them in your sleeve whenever you feel you need to spice things up conversationally.  
+#### 2. Fallback stories
+* Four components to fallback stories
+  * 1)the bridging sentence
+  * 2)the story itself
+  * 3)your opinion of the story
+  * 4)asking for other person's opinion in a few different ways
+  
+* Example: 
+  * Hey, you know what I heard recently?  
+  * One of my female friends just proposed to her boyfriend, and now they are engaged. Apparently she just didn’t want to keep waiting and decided to be progressive and ignore gender roles and take her life into her own hands. She even had a ring and everything.
+  * When I first heard about it, I generally thought why not, it's 2016! I know them both and it kind of suits their relationship.  
+  * What do you think about that? Would you ever do that? How would you react if your significant other did that with you? Would you do the ring as well?  
+
+## Chapter 11. The "Thought Experiment" Technique
+**Think of the “thought experiment” like wearing an intellectual costume.** You free them from the consequences of their statements and just allow them to address the actual substantive question being asked.  
+* parameters:  
+
+* limitations:
 
 
 # 随便聊聊
