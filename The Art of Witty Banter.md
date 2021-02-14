@@ -165,9 +165,76 @@ It just amounts to **putting** the burning thoughts in you brain **aside** for t
 
 ## Chapter 11. The "Thought Experiment" Technique
 **Think of the “thought experiment” like wearing an intellectual costume.** You free them from the consequences of their statements and just allow them to address the actual substantive question being asked.  
-* parameters:  
+#### 1. Words
+It can easily **blow up** in your face.  
+It can easily **come off** as an **inquisition** instead of something fun and engage people's problem-solving and intellectual faculties.  
 
-* limitations:
+#### 2. Tips to construct the thought experiment
+You should construct the thought experiement to make it look like an interesting moral dilemma/ problem-solving, rather than it seems as if you are looking for "right" answers.  
+What makes thought experiement engaging is the other person feels as if you've given them a puzzle to unravel. You can pose interesting scenarios and ask thought provoking questions.  
+Put the spotlight not on the person but on the hypothetical situation.  
+The secret is to allow people to feel separate from their self-consciousness and their fear of judgement. This way they will feel they are purely in the real of intellectual concepts.  
+
+## Chapter 12. Make the other person an expert
+#### 1. Words
+But the small **nuisances** of smelling like sunscreen, sand in **every nook and cranny**.  
+In a sense,  
+do it explicitly and **out of the blue**  
+
+#### 2. 
+* Curiousity is an approach to others that makes you more receptive to them. Taking it a step further and turning your conversation partner into your de facto teacher – that’s an approach that makes them more receptive to you in the long run.  
+* Making the other person an expert or teacher means that you react and ask questions in a way that allows them to teach you and feel a sense of superiority and validation in the interaction.  
+* All you need to do is follow up with questions that dig deeper and encourage them to educate you.  
+* The point here is to let them inflate their confidence and by extension, become more comfortable with you.  
+* Something that implies thet have greater knowledge
+  * This is random, but did you know that forks used to be made from the bark of trees?  
+* Samples:
+  * (Not good) Oh, cool, interesting. 
+  * (Good - provides a huge positive impact) Wow, you know so much! I never thought about that before.  
+  * (Good) No way! Tell me more about that.
+  * (Good) I'm learning so much. What about X?  
+  * (Good) You definitely know a lot about X. Does Y matter in X?  
+  * (No impliement, but you can do this putting favorable labels on people) Wow,you're definitely the expert and teacher on this subject. Tell me more, this is great!  
+
+## Chapter 13. Master saying "What were you saying"
+#### 1. Words
+This is when you **barge into** someon't statement. / We can't just barge into a private garden.  
+One person has to gracefully **bow out** and allow the other to continue. You **yield the floor**.  
+Most people often have an exaggerated opinion of their conversation skills.  
+Saying this statement reverses any feeling of powerlessness or **disenfranisement**.  
+You may have **monopilized** the conversation, but this statement can heal whatever **bruised emotions or damaged egos** may be involved. If nothing else, people will feel less like **hostages** to the conversation.  
+You realize that the conversational **balance has been off**, and you want to **rectify** it and hear them.  
+You want them to be in the spotlight, and you want to **take a seat in the audience**.  
+
+#### 2. 
+* When you can use "What were you saying"
+  * When you interrupt someone and they let you keep speaking.  
+  * When you begin speaking at the same with someone.
+  * When you go off in an extended statement, story or **rant**.  
+  * When You Want to Make the Other Person Feel More Involved in the Conversation.
+  * When you forget the topic of the conversation.  
+* Why
+  * You bring the attention and spotlight back to the person you are talking to. This provides a level of respect and attention.  
+  * Highlights the fact that you're paying attention to the conversation. Tells the other people that you're not full of yourself.  
+  * Remember conversations are two-way streets.  
+* Variations
+  * Back to you. (Simple and straightforward)  
+  * Sorry for interrupting, please go on. (very powerful because it involves humility and self-scolding)  
+  * Was that what you were going to say? / Were we on the same page there?  
+  * I'll shut up now. What do you think? (shows even more self-awareness)
+
+## Chapter 14. More effective compliments
+
+#### 1. Words
+
+#### 2. 
+
+
+## Chapter 15.
+
+#### 1. Words
+
+#### 2. 
 
 
 # 随便聊聊
@@ -176,9 +243,14 @@ Chapter 1 & 2
 我欠缺的其实是2方面，1是get不到对方的全部信息，无法判断出哪一块他更想分享更多或者有更多故事，有想问的却不能脱口而出，当心里默默酝酿的时候就错过机会了。-- **好办，练口语听力，找人聊天**  
 2是没有基本的文化背景，很难让别人感觉和你聊的来。就像和中国人聊天，吃的东西都相似可以交流，看的影视娱乐作品可以交流，关注的明星八卦可以交流，脱口而出的苟利国家生死以的文化积淀。-- **难办**  
 
-Chapter 3 & 4
+Chapter 3 & 4  
 和朋友聊天时emotion对我们来说毫无障碍。但是和外国人聊天，还是老问题，听力导致了我们的trigger words反应，应该尽量避免，使自己的反应更接近中文对话时。 -- **练口语听力 again**  
 看到association时其实我想到的是2个问题，1是我有一个很不好的习惯，就是习惯assume对方要讲的或者要问的是这个，这就会导致有时候我会错了意。 -- 慢慢改正吧make my mind to **go blank and zero**.  2是association其实我们都是没有问题的，问题的核心还是因为词汇和即时造句能力，我们无法用英语在稍微专业的其他领域交流。比如和同事聊到他周末要去biking,如果我有这方面的了解的话，完全可以就biking设备，biking比赛，biking经历等展开一系列的聊天，但是我并没有，于是conversation got stuck.而这个问题不仅是英语沟通，中文沟通也存在，比如上次父母问我网线五代线六代线的问题，我就答不上来，而我及时谷歌了学习了下做解答。（当然当时最好的做法其实是association转移话题）  
+
+Chapter 12  
+teacher and student. 这一章又多次提到了kick your ego to the curb （第9章derail your train of thought多次提到），殊途同归。我影响最深的应该是“You might be thinking that you know much more than this person and they have nothing to teach you. That’s not the point.”对话真的是向下兼容的。工作中我和某些senior同事聊天会有如沐春风的感觉，显然他们向下兼容了我。
+Chapter 13  
+I realized that the word spotlight almost appears in each chapter. In the conversation, make the parties be in the spotlight, no matter what way, they will feel more comfortable.
 
 
 # TODO: Mock small talks / Improve happened ones
