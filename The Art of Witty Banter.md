@@ -224,14 +224,57 @@ You want them to be in the spotlight, and you want to **take a seat in the audie
   * I'll shut up now. What do you think? (shows even more self-awareness)
 
 ## Chapter 14. More effective compliments
+#### 1. Words
+That is, until the **inevitable** sugar **rush** crash or cavity. More is not always better.  
+**Promptly** **flushed it down the toilet** because it felt so unnatural and forced to be complimented so much.  
+Make you look untrustworthy or like a **faltterer**.  
+A **ham fisted** comliment doesn't help create that effect. (awkward or clumsy)  
+One of the fundamental rules of likability and charisma is the convept of **reciprocity**. 
+You have to compliment the right way, or your compliments will **at best** fall flat, and **at worst** seem **disingenuous**.  
+You compliment will come off as less than genuine, and you will give the impression that you're fake or **manipulative**.  
+**Zero in** on something that provides a measure of validation.  
+Jet fighters zeroed in on the rebels' positions. / They zeroed in on the clues he dropped about himself.  
+Compliments that target things the person has put great effort into will **pay huge dividends**./ The formula pays off like clockwork.  
 
+#### 2. How to compliment properly
+* Compliment what: something that they actually care about: 
+  * Things people have control over: like clothing, fashion style, hair-style, living space
+  * things people have made choices about/ put some thought into: bright shirt, a distinctive handbag, an unusual piece of art, vintage car - out of the ordinary, uncommon, and that reflect a deliberate deviation from the norm  
+  * Their manners, the way they phrase certain ideas, their opinions, their worldview, their perspective: I agree with the choices that you've made and I understand your train of thought
+* Being observant about other people. Pay attention to how you think they want to be perceived, because that will give you some insight into their insecurities and you can use your compliments to build their confidence in those areas.
+
+
+## Chapter 15. Use double explanations
+#### 1. Words
+It really **boils down to** the first ten questions you will probably answer when you meet someone new. (have a particular thing as the main or central part.)  
+Everything boiled down to cash in the end.  
+
+
+#### 2. 
+* Usually, it goes like this: - important to enter any conversation with fully prepared answers for these common questions
+  * How are you, how was your weekend, where are you from, where did you go to school
+  * do you have siblings, what do you do, what did you study
+* 1st step is to come up with an interesting answer for the questions you know you'll be asked. But keep your answer short and simple - **a "layman's: explanation**. Your is to give context in an interesting and unique way.
+  * Example: What do you do? ~~I'm a lawyer./ I'm an attorney/ I practice law~~ Should be something short and pithy like, I file paperwork for a living/ I'm paid to argue with people. 
+  * A layman's explanation is simple, provides context, is unexpected, and draws people in.
+* 2nd step involves the **expert explanation**. Dependent on the person you're speaking with, keep the conversation on a fairly shallow level. If they starts asking questions that go beneath the surface, looking for more details. This is when you offer your "expert explanation".
+  * Expert explanations are what you offer once you've drawn people in with your simplified or layman's explanation.
+  * Example: So do too, that's a big part of my job
+  
+  
+
+  
+  
+
+
+
+## Chapter 16. 
 #### 1. Words
 
 #### 2. 
 
 
-## Chapter 15.
-
+## Chapter 17.
 #### 1. Words
 
 #### 2. 
