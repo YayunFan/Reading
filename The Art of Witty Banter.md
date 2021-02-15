@@ -247,7 +247,8 @@ Compliments that target things the person has put great effort into will **pay h
 ## Chapter 15. Use double explanations
 #### 1. Words
 It really **boils down to** the first ten questions you will probably answer when you meet someone new. (have a particular thing as the main or central part.)  
-Everything boiled down to cash in the end.  
+Everything boiled down to cash in the end./ It boils down to how creative you can get.  
+You can **unleash** your expert explanation on people to create engagement and immediately capitalize on a common interest.
 
 
 #### 2. 
@@ -259,22 +260,44 @@ Everything boiled down to cash in the end.
   * A layman's explanation is simple, provides context, is unexpected, and draws people in.
 * 2nd step involves the **expert explanation**. Dependent on the person you're speaking with, keep the conversation on a fairly shallow level. If they starts asking questions that go beneath the surface, looking for more details. This is when you offer your "expert explanation".
   * Expert explanations are what you offer once you've drawn people in with your simplified or layman's explanation.
-  * Example: So do too, that's a big part of my job
-  
-  
+  * Example: So do too, that's a big part of my job - Well, I'm a corporate lawyer and specialize in business transactions and **corporate filings**. Lots of corporation creation, and also some investments and loan documents.
+  * What did you do last weekend? - I went skiing, and generally flattened the snow a lot with my butt from failing. -1) Well, that's awesome. and then move on to another topic. -2) Oh, I went to two Black Diamonds, one Blue Diamond and got fitted for new ski poles because my old ones were bent from going over mow goals.
+* Most of conversations are very predictable. They can be summed up in about ten questions.
 
-  
-  
-
-
-
-## Chapter 16. 
+## Chapter 16. Witty, Good-Natured Teasing
 #### 1. Words
+They've gone from being witty and teasing to outright cruel.  
+whether you are being teasing, flirty, witty, or cruel is your intention.  
+It can easily backfire.  
+How do you **wield** this double-edged sword with care and in a way that doesn't ruffle any feathers?  
+There is some sort of magic **dividing line** to determine whether...  
+absurdity, hilarious, 
+You might think that approaching **taboo** topics will yield greater laughs – the bigger the risk, the bigger the payoff. I **assure** you that is not true.  
+Through **sheer** trial and error, I know there are some topics you cannot **dwell on** or tease people about.  
+**Steer** clear because as the old saying goes, “If you mess with the bull, you get the horns.”  
+You are **making light of** their challenge.  
+Compare this statement to something **flat out** insulting.  
 
 #### 2. 
+* Delivery. First, assume a deadpan delivery. (Poker face) The deadpan face must **slowly** fade and turn into a smile to let others feel safe and know that you were indeed kidding and **not serious**. Second, there has to be an indication that you did not mean what you said. There are many ways to do this. You can smirk or you can let a slight smile grow into a big grin. You can literally say, “I’m just kidding!” as well as laugh and shake your head.
+* Do tease people about:
+  * Superficial choices (That jacket is... interesting)  
+  * Aspects of about them that aren't personal (You probably have ther worst job out of anyone I know)
+  * The elephant in the room. (Is no one going to mention how that shirt makes you look like a bee?) 
+  * Idiosyncrasies and mannerisms (Even when he’s passed out from exhaustion, John will reach for a Coke … that guy is always thirsty)
+  * Ackonwledged weaknesses (You burnt the pancakes, what a shock!)
+  * Talents and positives (I bet you were told you have too much money to shop there again, weren’t you?)
+* Do not tease people about:
+  * Aspects about themselves they cannot change or control (Your lazy eye matches that homeless guy’s!)
+  * Deeply personal choices (It’s okay, your son is at public school. His teachers won’t care.)
+  * Political or religious views (It’s pretty funny how [insert religion] [insert insult]…)
+  * Values (I know this guy isn’t going to let his wife go to work because of his traditional values…)
+* Deliberately misconstrue their words (Be careful with this method)
+* Disagree and amplify (The overreaction is where the humor lies) 
+  * Example: You like Nickelback? Okay, I am going to jump into an empty pool right now. (I have to kill myself right now). ~~You must be tone deaf~~
+  
 
-
-## Chapter 17.
+## Chapter 17. The witty comeback machine
 #### 1. Words
 
 #### 2. 
@@ -294,6 +317,8 @@ Chapter 12
 teacher and student. 这一章又多次提到了kick your ego to the curb （第9章derail your train of thought多次提到），殊途同归。我影响最深的应该是“You might be thinking that you know much more than this person and they have nothing to teach you. That’s not the point.”对话真的是向下兼容的。工作中我和某些senior同事聊天会有如沐春风的感觉，显然他们向下兼容了我。
 Chapter 13  
 I realized that the word spotlight almost appears in each chapter. In the conversation, make the parties be in the spotlight, no matter what way, they will feel more comfortable.
+Chapter 16
+Keep it lighthearted. The big goal is to create a mutual level of comfort. Make sure that you always stay focused on your overall objective. Don't put them under a miscroscope, weighed their state on as scale, and ended up judging them. ~~(Who are you to judge me?)~~
 
 
 # TODO: Mock small talks / Improve happened ones
