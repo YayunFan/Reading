@@ -299,14 +299,49 @@ Compare this statement to something **flat out** insulting.
 
 ## Chapter 17. The witty comeback machine
 #### 1. Words
+Handle the initial negative statement with a **wry smirk** and with the knowledge that you are about to crush them.  
+deliver a witty **retort** after a failed murder attempt by a villain  
+Fight the temptation to rattle them off one after the other.  
+Try to keep your conversation from hitting awkward spots and dying a premature death.  
 
-#### 2. 
+#### 2.
+* How to do
+  * First, when thinking about a witty comeback, don't think generically.  
+  * Second, don't act like you can't take a joke. 
+  * Third, use the right tone.
+* Four main types of witty comebacks
+  * Pick apart their words
+  * Agree and amplify
+  * Reverse and amplify
+  * Use an outlandish comparison
+  
+
+## Chapter 18. Go beyond the literal
+#### 1. Words
+How can you start a **rousing** round of witty banter?  
+
+
+#### 2.
+* The first step is to stop taking every statement, question, or quip at face value. / When you stay literal, you miss opportunities of witty banter all day.  
+* Jokes have strict structures – setup, context, punch line, and laughter.  
+  * All you have to do is practice thinking outside of the box and thinking creatively.
+  * Another way to think about this is to simply misconstrue, or pretend that you misunderstand someone’s question or statement in an outlandish or flat out incorrect way.
+  
+#### 3. Example
+* So I spent a fortune at the Apple store today. ~~Oh, how much?~~
+  * It's so expensive there I had to sell a kidney to buy my new phone.  
+* He plays guitar like a deity. ~~Oh, what song did he play?~~
+  * More Buddha style, or would you say Ganesha style?
+* Last night's dinner made my taste buds cry. ~~Where did you eat?~~
+  * At least you didn’t have to eat your own cooking. I made that mistake once.
+* I quite enjoyed that speech. ~~Oh, me too.~~
+  * Mee too, seems like the money is in horses, isn't it? What would we name our horse?
 
 
 # 随便聊聊
 Chapter 1 & 2
 不管是中文还是英文闲聊本质都是一样的，如何让对方有倾诉欲，和你聊得来。  
-我欠缺的其实是2方面，1是get不到对方的全部信息，无法判断出哪一块他更想分享更多或者有更多故事，有想问的却不能脱口而出，当心里默默酝酿的时候就错过机会了。-- **好办，练口语听力，找人聊天**  
+我欠缺的其实是2方面，1是get不到对方的全部信息，无法判断出哪一块他更想分享更多或者有更多故事，有想问的却不能脱口而出，当心里默默酝酿的时候就错过机会了。-- **好办，练口语听力，找人聊天**    
 2是没有基本的文化背景，很难让别人感觉和你聊的来。就像和中国人聊天，吃的东西都相似可以交流，看的影视娱乐作品可以交流，关注的明星八卦可以交流，脱口而出的苟利国家生死以的文化积淀。-- **难办**  
 
 Chapter 3 & 4  
@@ -319,7 +354,9 @@ Chapter 13
 I realized that the word spotlight almost appears in each chapter. In the conversation, make the parties be in the spotlight, no matter what way, they will feel more comfortable.
 Chapter 16
 Keep it lighthearted. The big goal is to create a mutual level of comfort. Make sure that you always stay focused on your overall objective. Don't put them under a miscroscope, weighed their state on as scale, and ended up judging them. ~~(Who are you to judge me?)~~
-
+Chapter 18  
+To my surprise, in English, there is also a statement about selling kidney to buy iphone. Culture is always similar and connected.  
+BTW, at the end of the book, the author did a good summary of this book.  
 
 # TODO: Mock small talks / Improve happened ones
 # TODO: Cumulative Topic Knowledge and Practice
