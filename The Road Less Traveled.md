@@ -21,9 +21,22 @@ sheer negligence
 forsake
 for the sake of
 dubious
-bequeath
-acquisition
-invariably an uphill struggle**:  
+bequeath 
+acquisition 
+invariably  
+an uphill struggle**: 
+lawn mower, brake apparatus, razor blade, stick-shift car,   
+well-thought-out and effective solutions  
+chronic turmoil  
+ludicrous, 
+culprit, deprivation, scant, vicious, 
+
+## Sentences
+* neurosis is always a substitute for legitimate suffering. But the substitute  itself ultimately becomes more painful than the legitimate suffering it was designed to avoid.  
+* The neurotic assumes too much responsibility; the person with a character disorder not enough.
+
+
+
 
 
 ## 4 tools
@@ -32,7 +45,8 @@ Delaying of gratification, acceptance of responsibility, dedication, acceptance 
 "Do as I say, not as I do" parents  
 Our parents are godlike figures to our childish eyes. Yet even more important than rolw modeling is love.  
 Their words do not match up with their deeds.  
-develop the capacity to delay gratification -- have self-disciplined role models, a sense of self-worth, and a degree of trust in the safety of their existence. 
+develop the capacity to delay gratification -- have self-disciplined role models, a sense of self-worth, and a degree of trust in the safety of their existence.  
+Problem solving and time, Discipline, Responsibility,
 
 ### 
 
